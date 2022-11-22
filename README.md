@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RaimeXLP
 - 👀 I’m interested in Progamming lul
-- 🌱 I’m currently learning Java
+- 🌱 I’m currently learning how to f****ing get myself organized again
 - 💞️ I’m looking to collaborate on (currently nothing)
 - 📫 How to reach me: (*softly* don't...)
 
