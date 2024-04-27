@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @RaimeXLP
+- 🎵 Music Producer (prinz)
 - 👀 I’m interested in Progamming lul
 - 🌱 I’m currently learning how to f****ing get myself organized again
 - 💞️ I’m looking to collaborate on (currently nothing)
